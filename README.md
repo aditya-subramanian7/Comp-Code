@@ -1,2 +1,2 @@
 # Comp-Code
-I am not great at this please excuse
+I am not great at this please excuse me
